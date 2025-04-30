@@ -1,3 +1,1 @@
-# 💀 matty 3:16✊🏿
-
-no i dont want a new job
+# Look at my youtube to see what i'm working on https://www.youtube.com/@4nem_matty
